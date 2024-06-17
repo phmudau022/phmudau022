@@ -1,5 +1,5 @@
 - 👋 Hi, I’m mudau phumula(phmudau022)
 - 👀 I’m interested in software Development and Mobile Development
-- 🌱 I’m currently Doing  Mobile Developmentand Web Development
+- 🌱 I’m currently Doing  Mobile Development and Web Development
 - 💞️ I’m looking to collaborate on Front-end and Back-end Development
 - 📫 How to reach me phumulamudau259@gmail.com
