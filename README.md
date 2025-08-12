@@ -1,3 +1,3 @@
 - 👋 Hi, I’m mudau phumula(phmudau022)
-- 💞️ Currently a junior software develepor at Technanimals 
+- 💞️ Currently a junior software develepor 
 - 📫 How to reach me phumulamudau259@gmail.com
